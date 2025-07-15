@@ -1,11 +1,17 @@
 # Members Group 10
 
 - Ngueke Solangia
+
 — Heumou Oscar 
+
 — Mounchili Cherif
+
 — Nokam Sandrine Audrey
+
 – Mboungou Marcelin 
+
 - Diop Djibril
+
 — Lavry Yann Cedric
 
 
